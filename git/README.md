@@ -1,1 +1,1 @@
-i i am tired but determined. 
+i i am tired ,but determined. 
